@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nazogitbuh
+- 👀 I’m interested in old roblox clients
+- 🌱 I’m currently learning how to make a private roblox revival
+- 💞️ I’m looking to collaborate on nothing really just here to browse 
+- 📫 How to reach me ill provide email later
