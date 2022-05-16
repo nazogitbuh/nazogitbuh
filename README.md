@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @nazogitbuh
-- 👀 I’m interested in old roblox clients
-- 🌱 I’m currently learning how to make a private roblox revival
+- 👀 I’m interested in batch file coding and c++ coding
+- 🌱 I’m currently learning how to make multi tools and csgo cheats
 - 💞️ I’m looking to collaborate on nothing really just here to browse 
-- 📫 How to reach me ill provide email later
+- 📫 How to reach me discord and yt
+- macbook#0001
+- youtube.com/c/nazoo
